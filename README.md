@@ -14,4 +14,4 @@ HEAVY IWEC all the times, I'm really not feeling well these days.
   
   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=cassie-2245)
 
-I'll work on this more later...
+![My Discord](https://discord-readme-badge.vercel.app/api?id=<947074179293925406>)
