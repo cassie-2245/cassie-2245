@@ -1,17 +1,11 @@
- ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+Bmf!! I'm super friendly if you get to know me!! ;3
 
-Moony ノ Valencia
+I usually try to match your energy!! If I'm dry then I'm just maybe tired or upset.. ;c
 
-She ノ Her
+I tend to vent a LOT without asking, so please tell me if ur uncomfortable!!
 
-HEAVY IWEC all the times, I'm really not feeling well these days.
+Please make sure to check up on me from time to time!! I'm not really okay!!
 
-  ![Demo](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaTRoeGdzYW83cDdtM3Y3a283amNjZjljZGtmZnRiMmN6YmFmMWw4YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/iQHDtnUZ7gxI4/giphy.gif)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=cassie-2245)
 
-16.12. is my birthday
-
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-  
-  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=cassie-2245)
-
-
+WILL remake this later...
