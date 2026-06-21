@@ -9,6 +9,10 @@
 </p>
 
 <p align="center">
+   <img src="https://64.media.tumblr.com/da0aeb67cc62bd7fd310320c4359f5ca/d718cbb9cb3b7017-44/s100x200/5f519ce8998026e8413b3bd8db7a7721d738ef4f.gifv">
+  </p>
+
+<p align="center">
 $\color{#ffc403}{Bmf!}$ $\color{#ffc403}{I'm}$ $\color{#ffc403}{super}$ $\color{#ffc403}{friendly}$ $\color{#ffc403}{once}$ $\color{#ffc403}{you}$ $\color{#ffc403}{get}$ $\color{#ffc403}{to}$ $\color{#ffc403}{know}$ $\color{#ffc403}{me!}$
 </p>
 
@@ -35,6 +39,10 @@ $\color{#ffc403}{ᰔ ⊹˚₊}$ <a href="https://cassie-2245.atabook.org">ATA</a
 <p align="center">
   $\color{#293347}{Remember,}$ $\color{#293347}{this}$ $\color{#293347}{is}$ $\color{#293347}{still}$ $\color{#293347}{a}$ $\color{#293347}{wip.}$ $\color{#293347}{Some}$ $\color{#293347}{stuff}$ $\color{#293347}{might}$ $\color{#293347}{change.}$
  </p>
+
+ <p align="center">
+   <img src="https://64.media.tumblr.com/dcd6af4e886c3c95c2c8b81386fed3e7/d718cbb9cb3b7017-03/s75x75_c1/5013c5114b3e2a7ddb7a8ec3cd5c732be6e808a8.gifv">
+  </p>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/bdbbcf1d3568faa5c533a5cadac7e050/2fd98071752beefb-58/s250x400/bafa2e670699ec145581d3dcf516f8046bad35a4.pnj">
